@@ -1,14 +1,13 @@
 আস্সালামু আলাইকুম 
 # 🕌 মুফতী মিজানুর রহমান ওয়াহিদী
-### ইসলামী আলোচক | মুফাস্সির | মুহাদ্দিস
-
+### ইসলামী আলোচক ও বক্তা | মুফাস্সির | মুহাদ্দিস
 📞 **যোগাযোগ:** ০১৭৫৩-৪৮৮৭০৬
 
 
 ## 👤 পরিচিতি
 
 **মুফতী মিজানুর রহমান ওয়াহিদী** একজন ইসলামী আলোচক, মুফাস্সির ও মুহাদ্দিস।  
-তিনি কুরআন-সুন্নাহর আলোকে ইসলামের বিভিন্ন বিষয়ে আলোচনা, শিক্ষা ও দাওয়াতি কার্যক্রম পরিচালনা করেন।
+তিনি কুরআন-সুন্নাহর আলোকে ইসলামের বিভিন্ন বিষয়ে আলোচনা,ওয়াজ,বয়ান শিক্ষা ও দাওয়াতি কার্যক্রম পরিচালনা করেন।
 
 ## 🎓 দায়িত্ব ও কর্মস্থল
 - 🕌 **খতীব ও মুহতামীম** — তৌলকাই মাদরাসা মসজিদ কমপ্লেক্স, মুন্সীগঞ্জ
@@ -26,21 +25,10 @@
 ## 📞 যোগাযোগ
 **মুফতী মিজানুর রহমান ওয়াহিদী**  
 📱 মোবাইল: **০১৭৫৩-৪৮৮৭০৬** হোয়াটসঅ্যাপ 
-
-
+মিজানুর রহমান ওয়াহিদী-Mizanur Rahman Wahidi 
+Facebook page 
+মুফতী মিজানুর রহমান ওয়াহিদী (YouTube) 
 > **“কুরআন ও সুন্নাহর আলোকে জীবন গড়ি।”**
 
 جزاكم الله خيرًا
-**muftimizanurrahmanwahidibd/muftimizanurrahmanwahidibd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+**muftimizanurrahmanwahidibd/muftimizanurrahmanwahidibd** 
